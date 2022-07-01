@@ -1,4 +1,4 @@
-# sobri mim
+# sobre mim
 - 👋 olá meu nome é @amandaregiane
 - meu email
 -  👀 I’m interested in EM APRENDER
